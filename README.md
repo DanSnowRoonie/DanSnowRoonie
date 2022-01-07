@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Daniel Moore - or @DanSnowRoonie
-- 👀 I'm a sales enineer @ snowflake.coe
+- 👀 I'm a sales enineer @ snowflake.com
 - 🌱 
 - 💞️ 
 - 📫 How to reach me on Slack Daniel.Moore
